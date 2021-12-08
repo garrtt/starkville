@@ -8,3 +8,4 @@
 - [Crabtree Properties, LLC](https://www.crabtreepropertiesllc.com/)
 - [Linley Management, Inc](https://linleymanagement.com/)
 - [Carson Properties, LLC](https://www.carsonproperties-starkville.com/)
+- [Starkville Midtown Properties](http://starkvillemidtownproperties.com/)
